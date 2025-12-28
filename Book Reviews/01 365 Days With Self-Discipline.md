@@ -1,7 +1,7 @@
-365 Days With Self-Discipline: 
-365 Life-Altering Thoughts on Self-Control, Mental Resilience, and Success
-by
-Martin Meadows
+# 365 Days With Self-Discipline: 
+## 365 Life-Altering Thoughts on Self-Control, Mental Resilience, and Success
+**by**
+*Martin Meadows*
 
 You can read a 'Day' or chapter per day.
 
