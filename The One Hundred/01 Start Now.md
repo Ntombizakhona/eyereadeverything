@@ -90,4 +90,12 @@ Well, today looks like a good time to start a healthy diet, build positive relat
 
 Looking for a book on getting started and beating procrastination or whatever it is that is making you hesitate to start what you need to start? Well, you can peruse _The Science of Getting Started_ by Patrick King.
 
-![captionless image](https://miro.medium.com/v2/resize:fit:1400/format:webp/1*41PL8vqsanDzn_qv-Ht52A@2x.jpeg)
+# The Original
+
+**Blog:** [EyeReadEverything](https://medium.com/eyereadeverything)
+<br>
+**Article Link:** [Start Now](https://medium.com/eyereadeverything/start-now-de3a5f863982)
+<br>
+Originally Published by [Ntombizakhona Mabaso](https://medium.com/@ntombizakhona) 
+<br>
+**04 October 2024**
