@@ -12,3 +12,11 @@ This is a good book that will help you appreciate your introversion, and appreci
 It encourages individualism and the benefits of solitude & introversion in a world where it is often encouraged to be wild and about with a bunch of people.
 
 It is great for the employers, employees, parents and partners of quiet and introverted people, who wish to understand them and their unique, creative thought processes, that require silence and introversion.
+
+# The Original
+
+**Review Link:** [Quiet](https://www.goodreads.com/review/show/4583657182)
+<br>
+Originally Published by [Ntombizakhona Mabaso](https://www.goodreads.com/user/show/148454864-ntombizakhona-mabaso)
+<br>
+**10 August 2022**
