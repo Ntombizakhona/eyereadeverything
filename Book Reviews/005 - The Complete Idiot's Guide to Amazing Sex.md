@@ -1,3 +1,7 @@
+# The Complete Idiot's Guide to Amazing Sex
+**by** 
+*Sari Locker*
+
 This is a great, educational book about the body, reproductive organs and how to have, sane, safe, consensual sex and how to talk about it with your partner or parents or just about anyone really (but partner mostly).
 
 It really emphasizes the importance of safe, consensual sex.
@@ -18,3 +22,13 @@ And it will definitely answer your questions.
 Great for the inexperienced, the self-conscious Late Bloomers who have been thinking about sex, because experienced fornicators might be disappointed, (once again) its not the Kama Sutra, it’s literal sex education.
 It’s awesome for people who are curious about sex and its consequences, and want to be educated thoroughly, or at least touch some base.
 And if you want to educate yourself about the other gender, you should read it as well.
+
+---
+
+# The Original
+
+**Review Link:** [The Complete Idiot's Guide to Amazing Sex](https://www.goodreads.com/review/show/4844497932)
+<br>
+Originally Published by [Ntombizakhona Mabaso](https://www.goodreads.com/user/show/148454864-ntombizakhona-mabaso)
+<br>
+**13 July 2022**
