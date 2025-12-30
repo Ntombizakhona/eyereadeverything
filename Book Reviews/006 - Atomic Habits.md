@@ -19,7 +19,7 @@ This book highlights, and emphasizes the importance of little habits, little cha
 
 # The Original
 
-**Review Link:** Atomic Habits
+**Review Link:** [Atomic Habits](https://www.goodreads.com/review/show/4849850264)
 <br>
 Originally Published by [Ntombizakhona Mabaso](https://www.goodreads.com/user/show/148454864-ntombizakhona-mabaso)
 <br>
