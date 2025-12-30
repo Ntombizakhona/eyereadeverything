@@ -1,7 +1,7 @@
-Quiet: 
-The Power of Introverts in a World That Can't Stop Talking
-by
-Susan Cain
+# Quiet
+## The Power of Introverts in a World That Can't Stop Talking
+**by**
+*Susan Cain*
   
 Too often, I am told to: “Speak More.”
 But, who will listen, if we're all speaking?
