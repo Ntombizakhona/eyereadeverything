@@ -1,7 +1,7 @@
-The 7 Habits of Highly Effective People: 
-Powerful Lessons in Personal Change
-by
-Stephen R. Covey
+# The 7 Habits of Highly Effective People: 
+## Powerful Lessons in Personal Change
+**by**
+*Stephen R. Covey*
 
 I have always wanted to read this book.
 I used to see it laying around the house, different rooms too, a thoroughly read book I daresay!
@@ -21,3 +21,4 @@ Anyways, specifically, one might even assume he is speaking to a man who is doin
 The final section is what resonated with me the most, and it was about the prioritization of your physical health and exercise (so go jog) and how family (go home), ultimately is truly the most important relationship amongst all, and it is never too late to fix it.
 
 Once again, this book really seemed a bit mature (for me). I will definitely read it again in a decade if I ever find myself on the other side of matrimony, with my own little duplicates running around, and my consultation business, and my employees…for now let me just prioritize my health.
+
