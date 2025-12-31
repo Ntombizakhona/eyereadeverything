@@ -67,8 +67,6 @@ BOOK RECOMMENDATION
 Looking for a book on conquering procrastination?
 
 _The Science of Getting Started_ by Patrick King.
-
-![captionless image](https://miro.medium.com/v2/resize:fit:1400/format:webp/1*U8h_zyzWeVNO5QFhH3SDtg@2x.jpeg)
 ---
 # The Original
 **Blog:** [EyeReadEverything](https://medium.com/eyereadeverything)
